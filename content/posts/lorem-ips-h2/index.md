@@ -4,7 +4,7 @@ date = "2024-03-27"
 draft = false
 pinned = false
 tags = []
-image = "https://www.google.com/url?sa=i&url=https%3A%2F%2Fweinundsein.ch%2F&psig=AOvVaw3uvRDpGKDFJZUgVNYVTkFm&ust=1711634481436000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCICI9bzNlIUDFQAAAAAdAAAAABAD"
+image = "https://weinundsein.ch/wp-content/uploads/2023/03/Wein_8.jpg"
 description = "h lliwzw agziw hduwè£!"
 footnotes = "*z88tujüü*"
 +++
