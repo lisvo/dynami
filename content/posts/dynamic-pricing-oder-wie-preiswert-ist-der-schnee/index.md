@@ -41,7 +41,7 @@ Die Bergbahn Melchsee-Frutt stellt auch fest, dass sie von naheliegenden Gebiete
 
 ## «Skifahren ist ein Luxusgut»
 
-Skifahren ist auch eine Preisfrage. Durch die im Durchschnitt noch höheren Preise, werden Automatisch Leute ausgeschlossen. Diese welche sich an schönen Tage die Tageskarte für 100 Franken nicht leisten wollen oder können. Wird das Skifahren in Zukunft nur etwas für die Reichen sein?  Diese Frage stellen wir auch Daniel Dommann: “...Skilaufen ist ein Luxusgut. Das war vor 50 Jahren schon ein Luxusgut”. 
+Skifahren ist auch eine Preisfrage. Durch die teilweise noch höheren Preise, werden Automatisch Leute ausgeschlossen. Diese welche sich an schönen Tage die Tageskarte für 100 Franken nicht leisten wollen oder können. Wird das Skifahren in Zukunft nur etwas für die Reichen sein?  Diese Frage stellen wir auch Daniel Dommann: “...Skilaufen ist ein Luxusgut. Das war vor 50 Jahren schon ein Luxusgut”. 
 
 Das Ticket ist beim Skifahren jedoch oft das günstigste. Teuer wird vor allem die Ausrüstung, ebenso muss die Anreise mitgerechnet werden.
 
